@@ -1,6 +1,6 @@
 # atividade1
 ## site desenvolvido por:
-### esdutante Graielly 😊
+### estutante Graielly 😊
 ### artes 💗
 ### geografia 😁
 ** areas afins *
